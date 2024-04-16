@@ -1,0 +1,4 @@
+- Hi im Serafina!
+- 
+-  How to reach me: Discord @AkechiDefender!
+-  Pronouns: She/Her
