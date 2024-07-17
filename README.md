@@ -1,4 +1,3 @@
-![download (37)](https://github.com/user-attachments/assets/5e5cc45b-f023-48ce-8f46-5a0faedbf4c3)
 Serafina/Sera
 The shuake nuis are my children  
 Always up for a chat
