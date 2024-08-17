@@ -1,12 +1,11 @@
-Serafina/Sera
+![persona-5-persona-5-joker](https://github.com/user-attachments/assets/1728a4f0-2abc-43c7-9cc2-b210c60d7387)
 
-The shuake nuis are my children  
+**Girlfail/Serafina**
 
-Always up for a chat or to mess around. whatever i say is 99% not serious
+★ Usually drawing/offtab, you can whisper but it takes me a while to notice
 
-I'm willing to do joke roleplays
+★ Dni if unecessarily rude or if you dislike my interests
 
-Dni if you're just gonna complain about everything. I'm usually a p5 pony and coming up to me and saying "I hate persona 5" is just rude brah
+★ She/Her pronouns are fine
 
-![Untitled833_20240718124826](https://github.com/user-attachments/assets/2cd9af35-35a9-4771-91c6-4debabc354c6)
-
+★ I am a shuake fan, so if im afk as akechi feel free to sit next to me as joker or vice versa
