@@ -9,3 +9,5 @@
 ★ She/Her pronouns are fine
 
 ★ I am a shuake fan, so if im afk as akechi feel free to sit next to me as joker or vice versa
+
+![tumblr_p6twbvlZBX1vdlfh1o8_400](https://github.com/user-attachments/assets/88fb738a-1b87-4912-9aed-79ea9ad13ee5)
