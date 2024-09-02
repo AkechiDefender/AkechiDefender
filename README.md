@@ -1,4 +1,5 @@
-![persona-5-persona-5-joker](https://github.com/user-attachments/assets/1728a4f0-2abc-43c7-9cc2-b210c60d7387)
+!![creatures_](https://github.com/user-attachments/assets/d2802528-0fc2-41fd-9344-b49610110343)
+[persona-5-persona-5-joker](https://github.com/user-attachments/assets/1728a4f0-2abc-43c7-9cc2-b210c60d7387)
 
 **Girlfail/Serafina**
 
@@ -22,4 +23,6 @@
 
 
 ![tumblr_2ce04249a463d170c07ef88ef364cb46_f4425c5a_250](https://github.com/user-attachments/assets/b7ca5c90-e3fb-4f5d-ae00-e40ac4636112)
+![ezgif-1-beab8726c2](https://github.com/user-attachments/assets/325f382f-c968-4828-97e5-f645c6582691)
+
 
