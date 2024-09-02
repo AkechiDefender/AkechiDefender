@@ -1,5 +1,4 @@
 !![creatures_](https://github.com/user-attachments/assets/d2802528-0fc2-41fd-9344-b49610110343)
-[persona-5-persona-5-joker](https://github.com/user-attachments/assets/1728a4f0-2abc-43c7-9cc2-b210c60d7387)
 
 **Girlfail/Serafina**
 
