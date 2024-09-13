@@ -3,11 +3,11 @@
 
 **Girlfail/Serafina**
 
-★ Usually near spawn. C+H encouraged!! And also kissing/booping I might be off-tab tho (•̀ᴗ•́)و ̑̑
+★ Usually near spawn or idv area. C+H encouraged!! And also kissing/booping I might be off-tab tho (•̀ᴗ•́)و ̑̑
 
-★ Dni if unecessarily rude or if you dislike my interests + regular dni. 
+★ Uh dni if you ship anything illegal or questionable. Also dni joker haters. atlus is milking him cause he's cool
 
-★ I sometimes need tonetags, if I take a joke you make seriously feel free to correct me
+★ I sometimes need tonetags, if I take a joke you make seriously feel free to correct me. And if I make a joke or remark I dont like feel free to tell me
 
 ★ I love shuake and hamugis ⋆⁺₊⋆ ˘◡˘ ☾⋆⁺₊⋆
 
