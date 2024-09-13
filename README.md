@@ -10,8 +10,6 @@
 
 ★ I love shuake and hamugis ⋆⁺₊⋆ ˘◡˘ ☾⋆⁺₊⋆
 
-![tumblr_p6twbvlZBX1vdlfh1o8_400](https://github.com/user-attachments/assets/88fb738a-1b87-4912-9aed-79ea9ad13ee5)
-
 ![tumblr_40743bab3dd332942d1a2c8d09876f08_9ac81656_100](https://github.com/user-attachments/assets/66125c49-cd8b-4d28-9777-02c1f9b7bbba)
 ![tumblr_beab4e90453fe1c93255e120a94733bd_ad86c117_100](https://github.com/user-attachments/assets/0ba13fbe-15db-49de-b2e3-38e93cc420f1)
 ![tumblr_7f06ba415f6b2fcdfeb1ed97bc137367_05af04de_100](https://github.com/user-attachments/assets/0a9782fd-f07b-456a-a47c-7602fcf30754)
