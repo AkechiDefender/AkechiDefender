@@ -1,5 +1,4 @@
-![hits joker](https://github.com/user-attachments/assets/7d7b5d02-1f2d-45da-9a77-3cb256482d21)
-
+![download](https://github.com/user-attachments/assets/a1c910f8-fb0c-4486-b05f-1de6d0477f8a)
 
 **Girlfail/Serafina**
 
@@ -7,7 +6,7 @@
 
 ★ Uh dni if you ship anything illegal or questionable. Also dni joker haters. atlus is milking him cause he's cool
 
-★ I sometimes need tonetags, if I take a joke you make seriously feel free to correct me. And if I make a joke or remark I dont like feel free to tell me
+★ I sometimes need tonetags, if I take a joke you make seriously feel free to correct me. And if I make a joke or remark you dont like like feel free to tell me
 
 ★ I love shuake and hamugis ⋆⁺₊⋆ ˘◡˘ ☾⋆⁺₊⋆
 
